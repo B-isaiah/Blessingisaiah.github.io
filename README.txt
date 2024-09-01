@@ -1,2 +1,2 @@
-Blessing Isaiah Portforlio
+Blessing Isaiah Portfolio
 
